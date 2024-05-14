@@ -6,7 +6,7 @@ I'm a results-driven IT professional with a strong background in network enginee
 
 - **Location:** Al Rigga, Deira, Dubai, United Arab Emirates
 - **Email:** kaungsettkyaw11@gmail.com
-- **LinkedIn:** [Kaung Sett Kyaw](https://www.linkedin.com/in/kaungsettkyaw/)
+- **LinkedIn:** [Kaung Sett Kyaw](https://www.linkedin.com/in/kaungsett-kyaw22/)
 
 ## Experience
 
